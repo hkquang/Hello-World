@@ -1,3 +1,4 @@
 I walk through the door with you
 The air was cold
 But something about it felt like home somehow
+And I, left my scarf there at your sister's house
