@@ -1,4 +1,6 @@
 This is the end
 Hold your breath and count to ten
-Fell the earth move and then hearing my heart burst again
+Feel the Earth move and then
+Hear my heart burst again
 For this is the end
+I've drowned and dreamt this moment
